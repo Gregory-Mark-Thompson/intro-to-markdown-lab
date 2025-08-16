@@ -2,7 +2,7 @@
 
 ![a number of different sandwiches, possibly in a deli in New York City](https://images.unsplash.com/photo-1705647405231-c481e117e609?q=80&w=1974&auto=format&fit=crop&ixlib=rb-4.1.0&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
 
-_Contrary to the popular belief of 1st graders, sandwiches are not actually witches that live in the desert. Interestingly, it is true that the Earl of Sandwich gave the sandwich its name in English (see [Sandwich](https://en.wikipedia.org/wiki/Sandwich) wiki). In a similar vein, delis actually don't get their name from the Indian city of New Dehli (which actually contains Old Dehli within it, which is strange). For that matter, The Dalai Lama also has nothing to do with delis or Dehli, coincidentally, old or new (the city, that is-- the Dahli Lama is of course quite old-- everybody knows that)._
+_Contrary to the popular belief of 1st graders, sandwiches are not actually witches that live in the desert. Interestingly, it is true that the Earl of Sandwich gave the sandwich its name in English (see [Sandwich](https://en.wikipedia.org/wiki/Sandwich) wiki). In a similar vein, delis actually don't get their name from the Indian city of New Dehli (which actually contains Old Dehli within it, which is strange). For that matter, The Dalai Lama also has nothing to do with delis or Dehli, coincidentally, old or new (the city, that is-- the Dahli Lama is of course quite old-- everybody knows that), & neither does Salvador Dalí, while we aren't on the subject._
 
 # 1. Gather the Perfect Bread
 
